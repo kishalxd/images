@@ -7,3 +7,5 @@
 ![jig](https://user-images.githubusercontent.com/74188336/142691516-4b0fee38-6c8b-4204-8b1f-c1d8d1144161.jpeg)
 ![M2jeo](https://user-images.githubusercontent.com/74188336/142692890-641ebc21-2e47-4556-9d37-1c0b9e1a0587.jpeg)
 ![more toxic](https://user-images.githubusercontent.com/74188336/142692894-c17240e4-1101-4591-9d10-71793e460816.jpeg)
+![EDA](https://user-images.githubusercontent.com/74188336/143453528-2442d6f4-c07d-4c34-a05c-780095ebecf3.gif)
+![EDA (1)](https://user-images.githubusercontent.com/74188336/143454613-af02b6d7-1339-4b53-9253-0c4af81e0a41.gif)
