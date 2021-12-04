@@ -9,3 +9,7 @@
 ![more toxic](https://user-images.githubusercontent.com/74188336/142692894-c17240e4-1101-4591-9d10-71793e460816.jpeg)
 ![EDA](https://user-images.githubusercontent.com/74188336/143453528-2442d6f4-c07d-4c34-a05c-780095ebecf3.gif)
 ![EDA (1)](https://user-images.githubusercontent.com/74188336/143454613-af02b6d7-1339-4b53-9253-0c4af81e0a41.gif)
+
+![pso](https://user-images.githubusercontent.com/74188336/144725362-6236c9f0-8e64-418b-a78d-9ca6a150c4e0.gif)
+
+![v](https://user-images.githubusercontent.com/74188336/144725366-34f9b57b-a8d0-40ab-9b7e-3e6b65c2163b.png)
