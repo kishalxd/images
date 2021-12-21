@@ -19,3 +19,5 @@
 ![COVER](https://user-images.githubusercontent.com/74188336/146253091-252d4222-b242-490d-84c8-d62160016ee6.png)
 <img width="934" alt="Screenshot 2021-12-20 at 1 56 01 PM" src="https://user-images.githubusercontent.com/74188336/146735873-fcd5ffa4-ac54-452b-afd4-f3c57b862035.png">
 ![XDDtIAX](https://user-images.githubusercontent.com/74188336/146943990-828ef7b8-3a48-411f-940b-b9caf9484161.gif)
+![df1ff3761db6929d52ec330e3c1b4bf1](https://user-images.githubusercontent.com/74188336/146944487-13087b92-166c-47ee-97cb-c381f6d154f3.gif)
+![download](https://user-images.githubusercontent.com/74188336/146944686-74158d01-0efe-4a31-aa3a-f24d9de9e088.jpeg)
