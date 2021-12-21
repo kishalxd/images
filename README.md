@@ -18,3 +18,4 @@
 ![Untitled design](https://user-images.githubusercontent.com/74188336/146030575-ad110501-3358-4b96-b6a0-c74d7957b871.jpeg)
 ![COVER](https://user-images.githubusercontent.com/74188336/146253091-252d4222-b242-490d-84c8-d62160016ee6.png)
 <img width="934" alt="Screenshot 2021-12-20 at 1 56 01 PM" src="https://user-images.githubusercontent.com/74188336/146735873-fcd5ffa4-ac54-452b-afd4-f3c57b862035.png">
+![XDDtIAX](https://user-images.githubusercontent.com/74188336/146943990-828ef7b8-3a48-411f-940b-b9caf9484161.gif)
