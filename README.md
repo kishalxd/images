@@ -21,3 +21,5 @@
 ![XDDtIAX](https://user-images.githubusercontent.com/74188336/146943990-828ef7b8-3a48-411f-940b-b9caf9484161.gif)
 ![df1ff3761db6929d52ec330e3c1b4bf1](https://user-images.githubusercontent.com/74188336/146944487-13087b92-166c-47ee-97cb-c381f6d154f3.gif)
 ![download](https://user-images.githubusercontent.com/74188336/146944686-74158d01-0efe-4a31-aa3a-f24d9de9e088.jpeg)
+
+<img width="555" alt="Screenshot 2022-01-19 at 4 22 25 PM" src="https://user-images.githubusercontent.com/74188336/150116204-774eb35b-cff9-46c1-aa2d-ebd334aa5e15.png">
